@@ -1,2 +1,0 @@
-# A-R
-legal consultant
